@@ -44,3 +44,5 @@
 we should put a lil map of each floor or something here
 md can take pics in this format (you must be edit mode to see the syntax) >>>>>>>>>![tcip Logo](/images/logo.png) <<<<<<<
 just remove the spaces and add the desired pic names into the pic folder in this repo 
+
+You can contact us on your favorite messenger [Telegram](https://t.me/Theclockinn) and [WhatsApp]( https://wa.me/420732581255)
