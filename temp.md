@@ -1,3 +1,5 @@
+# company logo
+
 # Welcome :)
 ## Important info
 ### We are very happy you chose us for your cozy place during your adventure away from home 
@@ -5,7 +7,8 @@
 - Kitchen and roof terrace is open 6:00-22:00
 - WiFi: Network : The clock inn guest
 - Password : ItsFunoClock
-###Below you’ll find a list of our do’s and don'ts
+### Below you’ll find a list of our do’s and don'ts
+- No SMOKING in the rooms, we have beautiful terrace for that (open till 22:00) 
 - Check out by 10:00 (Please be on time, we do charge fee for a late check out)
 - Wear some form of clothing, nudity is fine in the shower even in your bed  but most people will feel uncomfortable if you walking around like that.
 - Use the bed that you are assigned, if you want to change bed please come to reception and we will do our best to accommodate you   
@@ -16,7 +19,6 @@
 - For security reasons after check out it is not allowed to use the hostel's communal spaces 
 - Ask at reception for fun activities - pubcrawl, tours(etc if we will have some more partner deals)
 - Please keep your key card safe, for lost key cards we charge 100kc
-- No SMOKING in the rooms, we have beautiful terrace for that (open till 22:00?) 
 
 ## Good to know:
 ### Czech laws : 
@@ -32,6 +34,3 @@
 
 [map with bookmarks of very cool places](https://www.google.com/maps/d/edit?mid=1YrDBJHvlzYAawm2uVQbHT9CmMmj_q7Rk&usp=sharing)
 
-Free tours?
-https://www.neweuropetours.eu/prague-walking-tours/
-https://praguefreetours.com/
