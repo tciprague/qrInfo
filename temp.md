@@ -2,7 +2,7 @@
 
 # Welcome :)
 
-## We are very happy you chose us for your cozy place during your adventure away from home 
+### We are so happy you chose us for your cozy place during your adventure away from home 
 
 - Reception is open  24/7 
 - WiFi: Network : The clock inn guest
@@ -16,14 +16,14 @@
 - Wear some form of clothing, nudity is fine in the shower even in your bed  but most people will feel uncomfortable if you walking around like that.
 - Use the bed that you are assigned, if you want to change bed please come to reception and we will do our best to accommodate you   
 - On the 4th floor we have a beautiful kitchen, for it to remain beautiful we all must clean up after ourselves, please label your food with name + check-out date. 
-- You will love the top 5th floor- rooftop terrace, library, TV-room, bar, fussball. etc?
+- You will love the top 5th floor- rooftop terrace, library, TV-room, bar, fussball and on occasion we even have events up there
 - Our elevator is very special, it can only take 3 people, if it takes more it gets stuck, if this does happen there is a phone number inside, please for all our sakes do not try to overload the elevator, steps are a great exercise and are a much better way to go ;) also it talks for no reason when you enter
 - Don’t use other people's beds and don’t put things on them, be a respectful roommates
 - For security reasons after check out it is not allowed to use the hostel's communal spaces 
 - Ask at reception for fun activities - pubcrawl, tours(etc if we will have some more partner deals)
 - Please keep your key card safe, for lost key cards we charge 100kc
 
-# Good to know:
+### **Good to know:**
 
 ### Czech laws: 
 
