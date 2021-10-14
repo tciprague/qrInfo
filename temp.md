@@ -6,7 +6,7 @@
 
 - Reception is open  24/7 
 - WiFi: Network : The clock inn guest
-- Password : ItsFunoClock
+- Password : ItsFunoClock!
 - Kitchen and roof terrace is open 6:00-22:00
 
 ### Our do’s and don'ts
