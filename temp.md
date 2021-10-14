@@ -42,5 +42,5 @@
 [map with bookmarks of very cool places](https://www.google.com/maps/d/edit?mid=1YrDBJHvlzYAawm2uVQbHT9CmMmj_q7Rk&usp=sharing)
 
 we should put a lil map of each floor or something here
-md can take pics in this format>>>>>>>>> ! [ GitHub Logo ]( /images/logo.png ) <<<<<<<
+md can take pics in this format (you must be edit mode to see the syntax) >>>>>>>>>![tcip Logo](/images/logo.png) <<<<<<<
 just remove the spaces and add the desired pic names into the pic folder in this repo 
