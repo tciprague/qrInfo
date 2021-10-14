@@ -1,6 +1,6 @@
-#Welcome :)
-##Important info
-###We are very happy you chose us for your cozy place during your adventure away from home 
+# Welcome :)
+## Important info
+### We are very happy you chose us for your cozy place during your adventure away from home 
 - Reception is open  24/7 
 - Kitchen is open 6:00-22:00
 - WiFi: Network : The clock inn guest
@@ -19,13 +19,14 @@
 - No SMOKING in the rooms, we have beautiful terrace for that (open till 22:00?) 
 
 
-##Good to know:
-###Czech laws : 
+## Good to know:
+### Czech laws : 
 *These kinds of fines happen rarely, but are good to be aware of.
 - Carry a ID on you (if you don’t 3000 CZK / ~120 EUR fine can apply)
 - Littering (throwing cigarette butts, chewing gum, spitting on the street) can be fined on the spot up to 1000 CZK / 40 EUR
 - Drinking alcohol on the street (1000 CZK/ 40 EUR fine)
-###Culture 
+### Culture
+- Big beer heads, no the waitress does not hate you, in Czechia they serve drinks with large heads(if the regular one scares you definetly dont ask for a Mlìko)
 - Tipping: It is considered polite to tip a minimum of 10%  at restaurants and bars.
 - Czech foods to try: Svíčková na smetaně, Guláš, pork knee, fried cheese(smazeny syr), garlic soup, ..?
 - Free tours happen everyday in the city, they are mainly in English and Spanish, 2 companies offer both free and paid tours, you can see their full range, timetable and prices by clicking on these links neweuropetourshl (src="https://www.neweuropetours.eu/prague-walking-tours/") & praguefreetours(hl src="https://praguefreetours.com/")
