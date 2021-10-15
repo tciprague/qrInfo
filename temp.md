@@ -20,7 +20,7 @@
 - Our elevator is very special, it can only take 3 people, if it takes more it gets stuck, if this does happen there is a phone number inside, please for all our sakes do not try to overload the elevator, steps are a great exercise and are a much better way to go ;) also it talks for no reason when you enter
 - Don’t use other people's beds and don’t put things on them, be a respectful roommates
 - For security reasons after check out it is not allowed to use the hostel's communal spaces 
-- Ask at reception for fun activities - pubcrawl, tours(etc if we will have some more partner deals)
+- Ask at reception for fun activities - pubcrawl, tours etc
 - Please keep your key card safe, for lost key cards we charge 100kc
 
 ### **Good to know:**
