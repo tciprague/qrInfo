@@ -28,15 +28,15 @@
 ### Czech laws: 
 
 *These kinds of fines rarely happen, but are good to be aware of*
-- Carry a ID on you (if you don’t 3000 CZK / ~120 EUR fine can apply)
+- Carry an ID on you (if you don’t 3000 CZK / ~120 EUR fine can apply)
 - Littering (throwing cigarette butts, chewing gum, spitting on the street) can be fined on the spot up to 1000 CZK / 40 EUR
 - Drinking alcohol on the street (1000 CZK/ 40 EUR fine)
 
 ### Culture
 
-- Big beer heads: no the waitress does not hate you, in Czechia they serve drinks with large heads(if the regular one scares you definitely dont ask for a Mlìko)
+- Big beer heads: no, the waitress does not hate you, in Czechia they serve drinks with large heads(if the regular one scares you definitely dont ask for a Mlìko)
 - Tipping: It is considered polite to tip a minimum of 10% at restaurants and bars.
-- Czech foods to try: Svíčková na smetaně, Guláš, pork knee, fried cheese(smazeny syr), garlic soup, ..?
+- Czech foods to try: Svíčková na smetaně, Guláš, pork knee, fried cheese(smazeny syr), garlic soup
 - Free tours happen everyday in the city, they are mainly in English and Spanish, 2 companies offer both free and paid tours, you can see their full range, timetable and prices by clicking on these links [new europe tours](https://www.neweuropetours.eu/prague-walking-tours/) & [prague free tours](https://praguefreetours.com/)
 
 [map with bookmarks of very cool places](https://www.google.com/maps/d/edit?mid=1YrDBJHvlzYAawm2uVQbHT9CmMmj_q7Rk&usp=sharing)
