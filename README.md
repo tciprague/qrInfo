@@ -1,5 +1,3 @@
-# company logo
-
 # Welcome :)
 
 ### We are so happy you chose us for your cozy place during your adventure away from home 
