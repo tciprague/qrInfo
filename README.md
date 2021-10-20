@@ -9,7 +9,7 @@
 
 ### Our do’s and don'ts
 
-- No SMOKING in the rooms, we have beautiful terrace for that (open till 22:00) 
+- No SMOKING in the rooms, we have beautiful terrace for that (open till 22:00) we are also a protected building so smoking in it is a major no no.
 - Check out by 10:00 (Please be on time, we do charge fee for a late check out)
 - Wear some form of clothing, nudity is fine in the shower even in your bed  but most people will feel uncomfortable if you walking around like that.
 - Use the bed that you are assigned, if you want to change bed please come to reception and we will do our best to accommodate you   
