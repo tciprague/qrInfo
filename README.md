@@ -7,6 +7,8 @@
   * Network : The clock inn guest
   * Password : ItsFunoClock!
 - Kitchen and roof terrace is open 6:00-22:00
+- [Map with bookmarks of very cool places](https://www.google.com/maps/d/edit?mid=1YrDBJHvlzYAawm2uVQbHT9CmMmj_q7Rk&usp=sharing)
+- You can contact us on your favorite messenger [Telegram](https://t.me/Theclockinn) and [WhatsApp](https://wa.me/420732581255?text=Hi%20I'm%20a%20customer%20looking%20for%20information)
 
 ### Our do’s and don'ts
 
@@ -38,6 +40,4 @@
 - Czech foods to try: Svíčková na smetaně, Guláš, pork knee, fried cheese(smazeny syr), garlic soup
 - Free tours happen everyday in the city, they are mainly in English and Spanish, 2 companies offer both free and paid tours, you can see their full range, timetable and prices by clicking on these links [new europe tours](https://www.neweuropetours.eu/prague-walking-tours/) & [prague free tours](https://praguefreetours.com/)
 
-[map with bookmarks of very cool places](https://www.google.com/maps/d/edit?mid=1YrDBJHvlzYAawm2uVQbHT9CmMmj_q7Rk&usp=sharing)
 
-You can contact us on your favorite messenger [Telegram](https://t.me/Theclockinn) and [WhatsApp](https://wa.me/420732581255?text=Hi%20I'm%20a%20customer%20looking%20for%20information)
