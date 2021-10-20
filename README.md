@@ -3,7 +3,7 @@
 ### We are so happy you chose us for your cozy place during your adventure away from home 
 
 - Reception is open  24/7 
-- WiFi: Network : The clock inn guest
+- WiFi:
   * Network : The clock inn guest
   * Password : ItsFunoClock!
 - Kitchen and roof terrace is open 6:00-22:00
