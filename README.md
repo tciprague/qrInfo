@@ -1,4 +1,4 @@
-# Welcome :)
+# Welcome to The Clock Inn :)
 
 ### We are so happy you chose us for your cozy place during your adventure away from home 
 
