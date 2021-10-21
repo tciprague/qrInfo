@@ -19,7 +19,7 @@
 - Use the bed that you are assigned, if you want to change bed please come to reception and we will do our best to accommodate you   
 - On the 4th floor we have a beautiful kitchen, for it to remain beautiful we all must clean up after ourselves, please label your food with name + check-out date. 
 - You will love the top 5th floor- rooftop terrace, library, TV-room, bar, fussball and on occasion we even have events up there
-- Our elevator is very special, it can only take 3 people, if it takes more it gets stuck, if this does happen there is a phone number inside, please for all our sakes do not try to overload the elevator, steps are a great exercise and are a much better way to go ;) also it talks for no reason when you enter
+- Our elevator can only take 3 people, if it takes more it gets stuck, please for all our sakes do not try to overload the elevator, stairs are a great exercise ;) 
 - Don’t use other people's beds and don’t put things on them, be a respectful roommates
 - For security reasons after check out it is not allowed to use the hostel's communal spaces 
 - Ask at reception for fun activities - pubcrawl, tours etc
@@ -39,6 +39,6 @@
 - Big beer heads: no, the waitress does not hate you, in Czechia they serve drinks with large heads(if the regular one scares you definitely dont ask for a Mlìko)
 - Tipping: It is considered polite to tip a minimum of 10% at restaurants and bars.
 - Czech foods to try: Svíčková na smetaně, Guláš, pork knee, fried cheese(smazeny syr), garlic soup
-- Free tours happen everyday in the city, they are mainly in English and Spanish, 2 companies offer both free and paid tours, you can see their full range, timetable and prices by clicking on these links [new europe tours](https://www.neweuropetours.eu/prague-walking-tours/) & [prague free tours](https://praguefreetours.com/)
+- Free tours happen everyday in the city, they are mainly in English and Spanish, 2 companies offer both free and paid tours, you can see their full range, timetable and prices by clicking on these links [new europe tours](https://www.neweuropetours.eu/prague-walking-tours/) & [prague free tours](https://praguefreetours.com/) & [prague tours] (https://www.prague-tours.eu/)
 
 
