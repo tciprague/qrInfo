@@ -29,7 +29,7 @@
 
 ### Emergency numbers:
 - Fire - 150
-- Medical Emergency (Ambulance/First Aid) - 155
+- Medical Emergency - 155
 - Prague City Police - 156
 - Police - 158
 - General Emergency Number - 112
