@@ -28,11 +28,12 @@
 ### **Good to know:**
 
 ### Emergency numbers:
+- General Emergency Number - 112
 - Fire - 150
 - Medical Emergency - 155
 - Prague City Police - 156
 - Police - 158
-- General Emergency Number - 112
+
 
 ### Czech laws: 
 
