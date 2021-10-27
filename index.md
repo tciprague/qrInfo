@@ -27,6 +27,13 @@
 
 ### **Good to know:**
 
+### Emergency numbers:
+- Fire - 150
+- Medical Emergency (Ambulance/First Aid) - 155
+- Prague City Police - 156
+- Police - 158
+- General Emergency Number - 112
+
 ### Czech laws: 
 
 *These kinds of fines rarely happen, but are good to be aware of*
