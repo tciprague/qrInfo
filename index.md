@@ -44,7 +44,7 @@
 
 ### Culture
 
-- Safety: P
+- Safety: Pickpockets and scam exchange people on the street are a issue here, apart from that its safe and calm
 - Big beer heads: no, the waitress does not hate you, in Czechia they serve drinks with large heads(if the regular one scares you definitely dont ask for a Mlìko)
 - Tipping: It is considered polite to tip a minimum of 10% at restaurants and bars.
 - Czech foods to try: Svíčková na smetaně, Guláš, pork knee, fried cheese(smazeny syr), garlic soup
