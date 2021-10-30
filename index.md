@@ -9,17 +9,19 @@
 - Kitchen and roof terrace is open 6:00-22:00
 - You can contact us on your favorite messengers [WhatsApp](https://wa.me/420732581255?text=Hi%20I'm%20a%20customer%20looking%20for%20information) and [Telegram](https://t.me/Theclockinn) 
 - [Map with bookmarks of very cool places](https://www.google.com/maps/d/edit?mid=1YrDBJHvlzYAawm2uVQbHT9CmMmj_q7Rk&usp=sharing)
-- Free tours happen everyday in the city, They are mainly in English and Spanish, Companies offer both free and paid tours, you can see their full range, timetable and prices by clicking on these links [new europe tours](https://www.neweuropetours.eu/prague-walking-tours/) & [prague free tours](https://praguefreetours.com/) & [prague tours](https://prague-tours.eu/)
+- Free tours happen everyday in the city, They are mainly in English and Spanish, Companies offer both free and paid tours, You can see their full range, timetable and prices by clicking on these links [new europe tours](https://www.neweuropetours.eu/prague-walking-tours/) & [prague free tours](https://praguefreetours.com/) & [prague tours](https://prague-tours.eu/)
 
 ### *Good to know:*
 
 ### Emergency numbers:
+
+- Emergency Pharmacy - 224 946 982
 - General Emergency Number - 112
 - Fire - 150
 - Medical Emergency - 155
 - Prague City Police - 156
 - Police - 158
-- Emergency Pharmacy - 224 946 982
+
 
 ### Our do’s and don'ts
 
