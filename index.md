@@ -11,6 +11,15 @@
 - [Map with bookmarks of very cool places](https://www.google.com/maps/d/edit?mid=1YrDBJHvlzYAawm2uVQbHT9CmMmj_q7Rk&usp=sharing)
 - Free tours happen everyday in the city, they are mainly in English and Spanish, 2 companies offer both free and paid tours, you can see their full range, timetable and prices by clicking on these links [new europe tours](https://www.neweuropetours.eu/prague-walking-tours/) & [prague free tours](https://praguefreetours.com/) & [prague tours](https://prague-tours.eu/)
 
+### *Good to know:*
+
+### Emergency numbers:
+- General Emergency Number - 112
+- Fire - 150
+- Medical Emergency - 155
+- Prague City Police - 156
+- Police - 158
+- Emergency Pharmacy - 224 946 982
 
 ### Our do’s and don'ts
 
@@ -25,16 +34,6 @@
 - For security reasons after check out it is not allowed to use the hostel's communal spaces 
 - Ask at reception for fun activities - pubcrawl, tours etc
 - Please keep your key card safe, for lost key cards we charge 100kc
-
-### *Good to know:*
-
-### Emergency numbers:
-- General Emergency Number - 112
-- Fire - 150
-- Medical Emergency - 155
-- Prague City Police - 156
-- Police - 158
-- Emergency Pharmacy - 224 946 982
 
 ### Czech laws: 
 
