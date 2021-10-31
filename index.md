@@ -8,7 +8,7 @@
   * Password : ItsFunoClock!
 - Kitchen and roof terrace is open 6:00-22:00
 - You can contact us on your favorite messengers [WhatsApp](https://wa.me/420732581255?text=Hi%20I'm%20a%20customer%20looking%20for%20information) and [Telegram](https://t.me/Theclockinn) 
-- [Map with bookmarks of very cool places](https://www.google.com/maps/d/edit?mid=1YrDBJHvlzYAawm2uVQbHT9CmMmj_q7Rk&usp=sharing)
+- [Google Maps](https://www.google.com/maps/d/edit?mid=1YrDBJHvlzYAawm2uVQbHT9CmMmj_q7Rk&usp=sharing) with places we think you will like 
 - Free tours happen everyday in the city, click for details> [new europe tours](https://www.neweuropetours.eu/prague-walking-tours/) & [prague free tours](https://praguefreetours.com/) & [prague tours](https://prague-tours.eu/)
 
 ### *Good to know:*
@@ -32,7 +32,7 @@
 - On the 4th floor we have a beautiful kitchen, for it to remain beautiful we all must clean up after ourselves, please label your food with name + check-out date. 
 - You will love the top 5th floor- rooftop terrace, library, TV-room, bar, fussball and on occasion we even have events up there
 - Our elevator can only take 3 people, if it takes more it gets stuck, please for all our sakes do not try to overload the elevator, stairs are a great exercise ;) 
-- Don’t use other people's beds and don’t put things on them, be a respectful roommates
+- Don’t use other people's beds or don’t put things on them, be a respectful roommates
 - For security reasons after check out it is not allowed to use the hostel's communal spaces 
 - Ask at reception for fun activities - pubcrawl, tours etc
 - Please keep your key card safe, for lost key cards we charge 100kc
