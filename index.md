@@ -32,9 +32,9 @@
 
 ### Our do’s and don'ts
 
-- No SMOKING in the rooms, we have beautiful terrace for that (open till 22:00) we are also a protected building so smoking in it is a major no no.
-- Check out by 10:00 (Please be on time, we do charge fee for a late check out)
-- Wear some form of clothing, nudity is fine in the shower even in your bed  but most people will feel uncomfortable if you walking around like that.
+- No SMOKING in the hostel, we have beautiful terrace for that (open till 22:00) we are also a protected building so smoking in it is a major no no.
+- Check out by 10:00 (Please be on time, we charge a fee for a late check out)
+- Wear some form of clothing, nudity is fine in the shower, even in your bed, most people will feel uncomfortable if you walking around like that.
 - Use the bed that you are assigned, if you want to change bed please come to reception and we will do our best to accommodate you   
 - On the 4th floor we have a beautiful kitchen, for it to remain beautiful we all must clean up after ourselves, please label your food with name + check-out date. 
 - You will love the top 5th floor- rooftop terrace, library, TV-room, bar, fussball and on occasion we even have events up there
