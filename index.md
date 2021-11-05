@@ -9,7 +9,8 @@
 - Kitchen and roof terrace is open 6:00-22:00
 - You can contact us on your favorite messengers [WhatsApp](https://wa.me/420732581255?text=Hi%20I'm%20a%20customer%20looking%20for%20information) and [Telegram](https://t.me/Theclockinn) 
 - [Google Maps](https://www.google.com/maps/d/edit?mid=1YrDBJHvlzYAawm2uVQbHT9CmMmj_q7Rk&usp=sharing) with places we think you will like 
-- Free tours happen everyday in the city, click for details> [new europe tours](https://www.neweuropetours.eu/prague-walking-tours/) & [prague free tours](https://praguefreetours.com/) & [prague tours](https://prague-tours.eu/)
+- Free tours everyday, click for details> [new europe tours](https://www.neweuropetours.eu/prague-walking-tours/) & [prague free tours](https://praguefreetours.com/) & [prague tours](https://prague-tours.eu/)
+- Covid testing [places](https://covid.praha.eu/)
 
 ### *Good to know:*
 
@@ -22,6 +23,12 @@
 - Prague City Police - 156
 - Police - 158
 
+### Culture
+
+- Safety: Pickpockets and scam exchange people on the street are a issue here, apart from that its safe and calm
+- Big beer heads: no, the waitress doesnt hate you, in Czechia they serve drinks with large heads(if the regular one scares you definitely dont ask for a Mlìko)
+- Tipping: It is considered polite to tip a minimum of 10% at restaurants and bars.
+- Czech foods to try: Svíčková na smetaně, Guláš, pork knee, fried cheese(smazeny syr), garlic soup
 
 ### Our do’s and don'ts
 
@@ -44,9 +51,6 @@
 - Littering (throwing cigarette butts, chewing gum, spitting on the street) can be fined on the spot up to 1000 CZK / 40 EUR
 - Drinking alcohol on the street (1000 CZK/ 40 EUR fine)
 
-### Culture
-
-- Safety: Pickpockets and scam exchange people on the street are a issue here, apart from that its safe and calm
-- Big beer heads: no, the waitress does not hate you, in Czechia they serve drinks with large heads(if the regular one scares you definitely dont ask for a Mlìko)
-- Tipping: It is considered polite to tip a minimum of 10% at restaurants and bars.
-- Czech foods to try: Svíčková na smetaně, Guláš, pork knee, fried cheese(smazeny syr), garlic soup
+###### pssst, since you made it to the end.......
+###### wanna tell us what we are missing?
+###### [maybe?](https://forms.gle/QsiAbr7Mfbh3wGkv9)
