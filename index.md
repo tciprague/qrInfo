@@ -48,7 +48,7 @@
 
 *These kinds of fines rarely happen, but are good to be aware of*
 - Carry an ID on you (if you don’t 3000 CZK / ~120 EUR fine can apply)
-- Littering (throwing cigarette butts, chewing gum, spitting on the street) can be fined on the spot up to 1000 CZK / 40 EUR
+- Littering such as throwing cigarette butts, chewing gum and spitting on the street (1000 CZK / 40 EUR)
 - Drinking alcohol on the street (1000 CZK/ 40 EUR fine)
 
 ###### pssst, since you made it to the end.......
