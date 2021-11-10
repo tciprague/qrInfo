@@ -3,13 +3,11 @@
 ### We are so happy you chose us for your cozy place during your adventure away from home 
 
 - Reception is open  24/7 
-- WiFi:
-  * Network : The clock inn guest
-  * Password : ItsFunoClock!
+- Check out is 10 A.M.
 - Kitchen and roof terrace is open 6:00-22:00
 - You can contact us on your favorite messengers [WhatsApp](https://wa.me/420732581255?text=Hi%20I'm%20a%20customer%20looking%20for%20information) and [Telegram](https://t.me/Theclockinn) 
 - [Google Maps](https://www.google.com/maps/d/edit?mid=1YrDBJHvlzYAawm2uVQbHT9CmMmj_q7Rk&usp=sharing) with places we think you will like 
-- Free tours everyday, click for details> [new europe tours](https://www.neweuropetours.eu/prague-walking-tours/) & [prague free tours](https://praguefreetours.com/) & [prague tours](https://prague-tours.eu/)
+- Free tours everyday, click for details> [new europe tours](https://www.neweuropetours.eu/prague-walking-tours/) & [prague free tours](https://praguefreetours.com/) & [prague tours](https://prague-tours.eu/) & [discover prague](https://discover-prague.com/)
 - Covid testing [places](https://covid.praha.eu/)
 
 ### *Good to know:*
